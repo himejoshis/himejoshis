@@ -4,7 +4,7 @@
     <img src="https://file.garden/aft92t-9oGJf2Hs2/shuukura-shuukura-picmix.gif" width="450">
 </p>
   
-　<p align="center">[ata ](https://maidenspup.atabook.org) .✦ ݁˖ [straw ](https://venivediveci.straw.page)  .✦ ݁ [prns](https://pronouns.cc/@maidenspup)  .✦ ݁ [guns](https://guns.lol/venividivici)
+　<p align="center">[ata ](https://maidenspup.atabook.org) .✦ ݁˖ [straw ](himesendai)  .✦ ݁ [prns](https://pronouns.cc/@maidenspup)  .✦ ݁ [guns](https://guns.lol/venividivici)
 
   <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
