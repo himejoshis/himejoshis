@@ -1,7 +1,7 @@
   
 <p>
   <p align="center">
-    <img src="https://i.postimg.cc/fL4DJB4C/Untitled1150-20261122130209.png” width="450">
+    <img src="https://i.postimg.cc/fL4DJB4C/Untitled1150-20261122130209.png” width="300">
 </p>
   
 　<p align="center">[ata ](https://maidenspup.atabook.org) .✦ ݁˖ [straw ](https://himesendai.straw.page) .✦ ݁ [guns](https://guns.lol/venividivici)
