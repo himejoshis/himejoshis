@@ -4,7 +4,7 @@
     <img src="https://i.postimg.cc/fL4DJB4C/Untitled1150-20261122130209.png” width="100">
 </p>
   
-　<p align="center">[ata ](https://maidenspup.atabook.org) .✦ ݁˖ [straw ](https://himesendai.straw.page) .✦ ݁ [guns](https://guns.lol/venividivici)
+　<p align="center">[ata ](https://maidenspup.atabook.org) .✦ ݁˖ [straw ](https://himesendai.straw.page) .✦ ݁ [guns](https://guns.lol/ethe)
 
   <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
