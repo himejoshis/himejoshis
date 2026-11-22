@@ -1,7 +1,7 @@
   
 <p>
   <p align="center">
-    <img src="https://file.garden/aft92t-9oGJf2Hs2/shuukura-shuukura-picmix.gif" width="450">
+    <img src="https://file.garden/aft92t-9oGJf2Hs2/Untitled1150_20261122130209.png” width="450">
 </p>
   
 　<p align="center">[ata ](https://maidenspup.atabook.org) .✦ ݁˖ [straw ](https://himesendai.straw.page) .✦ ݁ [guns](https://guns.lol/venividivici)
